@@ -1,0 +1,1 @@
+# autodiscover.swatisadan.edu.np
